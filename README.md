@@ -6,3 +6,6 @@ trust and believe better days are comming
 W
 D
 V
+
+
+as I continue the next day, I getting more confuse
